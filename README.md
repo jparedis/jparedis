@@ -1,0 +1,3 @@
+- Hi, I’m @jparedis
+- I’m interested in all things Microsoft
+- Drop me a line!
